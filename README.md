@@ -1,2 +1,13 @@
 # STEM201THEFIRST
-project TENET
+Rosario,Rhans Zhen L.
+PROJECT TENET
+SATOR
+AREPO
+TENET
+OPERA
+ROTAS
+
+
+
+
+
